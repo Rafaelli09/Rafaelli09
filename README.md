@@ -11,3 +11,5 @@ você pode entrar em contato comigo 🧚🏻‍♀️
 Rafaelli.Piekarski@escola.pr.gov.br
 
 @RafaelliPiekarski
+
+![](https://tenor.com/pt-BR/view/hello-kitty-gif-14986777969723276183)
